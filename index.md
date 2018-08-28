@@ -1,3 +1,8 @@
+---
+title: ReallyRally free domain name
+---
+
+
 ## Welcome to REALLYRALLY
 
 This is a free domain name. I didn't know what to do with it so here it is. Contact me if you want this domain name and 
