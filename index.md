@@ -3,6 +3,10 @@ title: ReallyRally free domain name
 ---
 
 
+This is a free domain name. Please contact me at the following address
 
-This is a free domain name. I didn't know what to do with it so here it is. Contact me if you want this domain name and 
-I'll give it to you free of charge.
+
+Email address: jeff12147212@gmail.com
+
+
+Through e-mail, if you want this domain free of charge.
